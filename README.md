@@ -1,1 +1,0 @@
-# quantumrish.github.io
